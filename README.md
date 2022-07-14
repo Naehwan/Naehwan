@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Naehwan
-- 👀 I’m interested in ... NFT,AI deep leaning
+- 👀 I’m interested in ... NFT,AI deep learning,games
 - 🌱 I’m currently learning ...
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me ... qkrsoghks2@gmail.com
